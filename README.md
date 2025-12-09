@@ -7,3 +7,5 @@ ___ ★₊˚ Quiet but not shy. life can be pretty cool because you can get a ba
 ___ ★₊˚ If I'm not able to thank you in person...I really appreciate all the funny/nice compliments. 
 
 ___ ★₊˚ If im unable to reply to a whisper...its probably because i've dozed off...... i dont hate you! 
+
+(got hit with the curse of a thousand physics assignments....................please pray for me. im so tired... i want to hang out wiht my frienngndngn) 
