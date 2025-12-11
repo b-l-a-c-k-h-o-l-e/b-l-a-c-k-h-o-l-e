@@ -8,5 +8,4 @@ ___ ★₊˚ If I'm not able to thank you in person...I really appreciate all th
 
 ___ ★₊˚ If im unable to reply to a whisper...its probably because i've dozed off...... i dont hate you! 
 
-(upd8 FREE from the curse of physics assignments..........................................................my chains are BROKEN.......not a puppet 2 academia any longer (still a puppet 2 academia...) what will i do with my free will.......hgmgmm afk on horse town, if you see me, im...probably playing piano or decomposing... something something mycelial network )
 
