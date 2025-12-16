@@ -1,6 +1,6 @@
 wippp WIPPPP will work on this. But very quickly.
 
-___ ★₊˚ I'm usually off-tab or with my friends in party chat, feel free to come sit with me, regardless of who I'm with...my close friends sometimes call me kris for some reason. No idea why. 
+___ ★₊˚ I'm usually off-tab or with my friends in party chat, feel free to come sit with me, regardless of who I'm with...my close friends call me kris for some reason. No idea why. 
 
 ___ ★₊˚ Quiet but not shy. life can be pretty cool because you can get a bagel. But there's also the horrors. 
 
