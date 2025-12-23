@@ -8,4 +8,5 @@ ___ ★₊˚ If I'm not able to thank you in person...I really appreciate all th
 
 ___ ★₊˚ If im unable to reply to a whisper...its probably because i've dozed off...... i dont hate you! 
 
+I accept all PT friend requests but might only see them hours later, don't worry... i do get round to them. 
 i get a lot of people asking me how i do my eyes.... use this -> https://i.pinimg.com/736x/5d/cd/24/5dcd2494d13fdf390f19a89acdfab952.jpg
