@@ -13,5 +13,5 @@ I accept all PT friend requests but might only see them hours later, don't worry
 
 i get a lot of people asking me how i do my eyes.... use this -> https://i.pinimg.com/736x/5d/cd/24/5dcd2494d13fdf390f19a89acdfab952.jpg
 
-uh...apparently people have been impersonating me haha (do people find me that cool?).....i feel kind of shy, look for my github to make sure its me. 
+uh...apparently people have been impersonating me haha (do people find me that cool?).....i feel kind of shy. To make sure its me, look for my github link. 
 I dont mind if people take inspiration from my skins, just be sure to put your own spin on them, ok?
