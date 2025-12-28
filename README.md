@@ -72,14 +72,14 @@
 <tr>
 <td align="center" width="33%">
 <img src="https://i.postimg.cc/BQvND6dG/pony-town-i-vite-n-stand-blinking-padded-4x-(1).gif" width=""/><br>
-<sub>krih testing this i'll display these better.</sub>
+<sub>krih testing this</sub>
 </td>
 <td align="center" width="33%">
-<img src="https://via.placeholder.com/200x200/2d3748/8b9dc3?text=SKIN+2" width="150"/><br>
-<sub>sᴋɪɴ ɴᴀᴍᴇ</sub>
+<img src="https://i.postimg.cc/854p2tk1/pony-town-sye-n-sisg-tgee-stand-blinking-padded-ponyplush-4x.gif" width=""/><br>
+<sub>oc skin</sub>
 </td>
 <td align="center" width="33%">
-<img src="o" width="150"/><br>
+<img src="https://i.postimg.cc/0y7sgcZc/pony-town-stagiess-n-ata-stand-blinking-padded-4x.gif" width=""/><br>
 <sub>sᴋɪɴ ɴᴀᴍᴇ</sub>
 </td>
 </tr>
