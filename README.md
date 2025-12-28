@@ -33,7 +33,7 @@
 <sub>✦ eco-brutalism, meteorology, old-web aesthetics.</sub>  
 <sub>✦ I love the stars, I love creating and I love humans a lot, even though I don't feel very human sometimes...? <br>
 </sub><br>
-<sub> ---> : undertale, deltarune, pokemon, homestuck, wcue, ecos la brea, anything sci-fi... </sub>
+<sub> ---> : undertale, deltarune, pokemon, homestuck, wcue, ecos la brea, zelda, anything sci-fi... </sub>
 
 
 
