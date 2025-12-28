@@ -129,9 +129,3 @@ wip
 
 ---
 
-<div align="center">
-
-<img src="https://capsule-render.vercel.app/api?type=waving&color=gradient&customColorList=18,14,17&height=100&section=footer" width="100%"/>
-
-
-```
