@@ -49,7 +49,7 @@
 **☆ things to note ...**
 
 <sub>
-☆ I like making friends, if you're 18+ and want to... befriend me, you can find my discord below. I may sometimes take a day or so to reply. Probably uh.....on another piano kick or chilling in the forest. >! b.eleth
+☆ I like making friends, if you're 18+ and want to yap sometime...whisper me your discord whenever you see me around and i'll add you whenever i tab  back in. I may sometimes take a day or so to reply. Probably uh.....on another piano kick or chilling in the forest.
 </sub><br><br>
 
 <sub>-> I have ...impersonators? (haha...) its a little funny, im kind of honoured. But to make sure its me, make sure my GitHub is attached. </sub>
