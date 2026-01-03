@@ -4,7 +4,7 @@
 ![Banner](https://i.pinimg.com/1200x/5a/33/1f/5a331fa2bd91de836be2dc9ea61cc15e.jpg)
 <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=14&duration=4000&pause=2000&color=8B9DC3&center=true&vCenter=true&width=900&height=50&lines=so+why+care+for+these...petty+obsessions%2C;your+designer+heart+still+beats+with+common+blood." alt="Typing SVG" /><br>
 <sub>You can call me Arc, but Kris or Cole is nice too. I'm an Astrophysics student. <br> * It seems like your flicker within the unsound of the universe has aligned with mine. <br>
-... i think thats really cool. (this is still a wip.)</sub>
+... i think thats really cool. (this is still a wip.) (i hate to add this, but if i need space from you, dont. stalk. me.) </sub>
 
 [![atabook](https://img.shields.io/badge/atabook-4a5568?style=flat-square&logo=data:image/svg+xml;base64,PHN2ZyB3aWR0aD0iMjQiIGhlaWdodD0iMjQiIHZpZXdCb3g9IjAgMCAyNCAyNCIgZmlsbD0ibm9uZSIgeG1sbnM9Imh0dHA6Ly93d3cudzMub3JnLzIwMDAvc3ZnIj48cGF0aCBkPSJNMTIgMkM2LjQ4IDIgMiA2LjQ4IDIgMTJzNC40OCAxMCAxMCAxMCAxMC00LjQ4IDEwLTEwUzE3LjUyIDIgMTIgMnoiIGZpbGw9IiNmZmZmZmYiLz48L3N2Zz4=)](https://b-l-a-c-k-h-o-l-e.atabook.org/) [![strawpage](https://img.shields.io/badge/strawpage-ff6b9d?style=flat-square&logo=data:image/svg+xml;base64,PHN2ZyB3aWR0aD0iMjQiIGhlaWdodD0iMjQiIHZpZXdCb3g9IjAgMCAyNCAyNCIgZmlsbD0ibm9uZSIgeG1sbnM9Imh0dHA6Ly93d3cudzMub3JnLzIwMDAvc3ZnIj48cGF0aCBkPSJNMTIgMkM2LjQ4IDIgMiA2LjQ4IDIgMTJzNC40OCAxMCAxMCAxMCAxMC00LjQ4IDEwLTEwUzE3LjUyIDIgMTIgMnoiIGZpbGw9IiNmZmZmZmYiLz48L3N2Zz4=)](https://a-r-c.straw.page/)
 
